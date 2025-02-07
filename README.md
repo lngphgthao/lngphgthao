@@ -3,7 +3,7 @@ Major in Computer Science - University of Information Technology - VNUHCM
 ___
 ### Contact me through:
 
-> Gmail: phuongthao27102005@gmail.com
+> Gmail: phuongthao27102005@gmail.com or 23521467@gm.uit.edu.vn
 
 > Facebook: [Lê Ngọc Phương Thảo](https://www.facebook.com/lngphthao/)
 
